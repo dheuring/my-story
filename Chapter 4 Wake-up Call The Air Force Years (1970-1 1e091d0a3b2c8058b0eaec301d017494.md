@@ -1,0 +1,14 @@
+# Chapter 4:  Wake-up Call: The Air Force Years (1970-1973)
+
+My four years in the U.S. Air Force marked a period that fundamentally reshaped my worldview. It began with basic and technical training, where I was introduced to military discipline and encountered people from vastly different backgrounds. Growing up in small-town Minnesota had offered little exposure to diversity, but boot camp quickly challenged many of my childhood assumptions. I was forced to reconsider long-held beliefs about race, culture, class, and life beyond the narrow boundaries of my familiar world.
+
+My first assignment at Ellsworth AFB in South Dakota provided structure and purpose. I secured a technical role operating a keypunch machine—a position offering stability as I found my footing. I formed a close friendship with Tom Luft, a Vietnam vet, and we enjoyed parties, road trips, and casual hangouts together. Living off-base with Tom and another friend, we created a carefree lifestyle with just enough responsibility to maintain order. It was chaotic, enjoyable, and formative—an accelerated course in independence.
+
+Being reassigned to U-Tapao Airfield in Thailand marked a pivotal shift. What began as a search for adventure evolved into something more profound. Immersed in Thai culture and distant from American norms, I began viewing the Vietnam War—and my participation in it—differently. I transitioned from supporter to quiet skeptic, joining fellow airmen in subtle resistance acts like drawing peace signs under our caps. I also became a regular pot user—part of many airmen's off-duty culture and another way of stepping outside military rigidity. After moving off base, I was introduced to a different world—one shaped by Buddhism, Thai hospitality, and village life—which began to reshape my views on faith, morality, and priorities.
+
+Thailand didn't merely expand my world—it challenged its foundations. The contrast between military structure and the surrounding towns drew me toward something freer and more authentic. I found meaning in simplicity, cultural differences, and a slower rhythm of life. I wasn't simply passing through—I was absorbing the culture. By my tour's end, I knew my connection with Thailand remained incomplete. College could wait. I was determined to return—to explore further, to live differently, and to continue learning. This chapter marks when my life began diverging from convention toward something unknown but deeply compelling.
+
+| [**Click here for the summary of Chapter 5**](Chapter%205%20From%20Collapse%20to%20Clarity%20The%20Path%20That%20F%201e091d0a3b2c80bf87eec00b869762d2.md) |
+| --- |
+|                                    **or** |
+| [**Click here to read the  contents of Chapter 4**](https://drive.google.com/file/d/1WM-sn5huYlKqhNcYfH5HJWoWP_GQAtLP/view?usp=drive_link) |

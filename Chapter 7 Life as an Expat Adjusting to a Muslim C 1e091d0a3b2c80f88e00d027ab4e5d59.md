@@ -1,0 +1,16 @@
+# Chapter 7:  Life as an Expat: Adjusting to a Muslim Country (1984-1987)
+
+Moving to Saudi Arabia in 1984 marked a turning point in my life—a financially motivated decision that became pivotal for my career. Raytheon's teaching position offered immediate relief from student debt with its generous salary, excellent benefits, and free housing, but initially separated me from Miam and the kids for months despite promises of quick reunification. My ultimatum to Raytheon HR soon brought my family to Jeddah, teaching me my first crucial lesson in navigating Middle Eastern bureaucracy—that being assertive rather than passive was essential, a skill that would prove invaluable throughout my career.
+
+The teaching position quickly fell short of expectations. Despite my master's degree and enthusiasm for innovative language instruction, I found myself in a program where appearances mattered more than outcomes. My male students, products of rigid religious schooling and warned against foreign influence, often showed limited preparation and resistance to learning. Within these constraints, I adapted—ensuring students passed required exams while mentoring colleagues and questioning flawed curricula. I volunteered to teach the program's most challenging students from isolated tribes, developing personalized approaches and experimenting with early educational technology by learning basic database programming to create interactive materials.
+
+Our American-style compound presented a stark contradiction—a sanctuary of suburban comfort surrounded by the Kingdom's strict religious constraints. The community formed a complex social ecosystem where house parties blurred personal boundaries and gossip flourished. Miam and I navigated this complicated social environment while maintaining normal family routines—school for Patti and a new brother for Joey when Danny was born in 1985, basketball and other sports activities for me, and regular shopping trips for the family. In one instance of poor judgment that reflected the compound's contradictory nature, I risked severe legal consequences by supplying high-grade Thai marijuana to fellow residents—a decision that could have been devastating under Saudi law.
+
+A lifeline out of this abnormal existence came through a former colleague's offer of a university position in Egypt—promising professional advancement and a fresh start. My Saudi experience, though challenging, offered valuable lessons in navigating the complexities of a strict Islamic society while showing me that living in the artificial environment of a compound just wasn't mentally healthy for me in the long run. It also culminated in a significant spiritual evolution, as I had moved from my Catholic upbringing through Buddhist influences in Thailand to witnessing Islam’s strict orthodoxy, ultimately embracing an atheism grounded in reason, compassion, and lived experience rather than doctrine.
+
+| [**Click here for the summary of Chapter  8**](Chapter%208%20Career%20Leap%20Opportunity%20and%20Challenges%20(%201e091d0a3b2c80ee94d0c340b9145e59.md) |
+| --- |
+|                                    **or** |
+| [**Click here to read the  contents of Chapter 7**](https://drive.google.com/file/d/1mS8fpecHI8kh5xnUw4Gz7FeNiMt0i5Dt/view?usp=drive_link) |
+
+[Chapter 7 Photo Collage.pdf](Chapter_7_Photo_Collage.pdf)
